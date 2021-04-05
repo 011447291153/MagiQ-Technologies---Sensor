@@ -1,0 +1,1 @@
+# MagiQ-Technologies---Sensor
